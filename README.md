@@ -1,5 +1,5 @@
 •*❆.·❄️Sampaguita❄️.·❆*•
-
+.❆·.·❄︎She/Her ❄︎.·❆
 
 .·❄️•*One's heart doth bear a special interest for Figure Skating⛸️.　❅　　　　❅•❄︎.　•*❆.❄️.❄️　　*　❅••..　❄️❄︎❀　.　❆.
 　　　　·.　❄️　　.•*❆.　　　　　❅❆•　　　•　　•　　　　❅•❆•　　•　❄︎　❅••..
